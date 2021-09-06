@@ -33,5 +33,5 @@ Time
 Perfect example of replay as proof, need wc3 version 1.28.5 (ALSO IN FOLDER):
 https://drive.google.com/file/d/13VNauJCV7IbWvE0Tk14f2sSYcaKddDB7/view?usp=sharing
 
-twrpg 20j kor map ver, you can also download from twrpg.com if you prefer (ALSO IN FOLDER):
+twrpg 20j kor map ver, you can also download from twrpg.com if you prefer:
 https://drive.google.com/file/d/1JCjPWSqyuNknJ6MfR_pUCmnDQ5v8FUwO/view?usp=sharing
